@@ -1,3 +1,3 @@
 # Calculate More Org
 
-All in one calculator
+Free Online Calculators for Every Need
